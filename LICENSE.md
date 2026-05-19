@@ -1,4 +1,4 @@
-# 
+# best Wave for PC scripts is the best Wave for PC scripts with project-accounting and accounting. Safe, reliable, and optimized for maximum performance.
 
 
 
